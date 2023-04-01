@@ -1,1 +1,0 @@
-# duirev.github.io
